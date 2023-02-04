@@ -1,1 +1,1 @@
-Do Hard Things
+Do Hard Things Always  and Grit
